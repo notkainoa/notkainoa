@@ -1,1 +1,1 @@
-# ➡️ https://www.kainoa.me
+# ➡️ https://kainoa.me
